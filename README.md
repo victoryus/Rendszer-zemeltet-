@@ -1,1 +1,1 @@
-# Rendszer-zemeltet-
+# Rendszer uzemelteto
